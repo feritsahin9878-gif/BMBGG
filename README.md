@@ -1,2 +1,0 @@
-# BMBGG
-GGHHG
